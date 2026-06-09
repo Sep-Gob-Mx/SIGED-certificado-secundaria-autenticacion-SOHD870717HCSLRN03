@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SOHD870717HCSLRN03
+SOHD870717HCSLRN03
